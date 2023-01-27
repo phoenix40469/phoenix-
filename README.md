@@ -3,9 +3,9 @@
 
     🔭 I’m currently working on being a Cybersecurity Expert 
 
-    🌱 I’m currently learning Everything 
+    🌱 I’m currently learning cybersecurity,crypto and stocks 
 
-    👯 I’m Noob
+    📚 I’m a learner
 
     💬 Ask me about Cyber Security and many more...
 
